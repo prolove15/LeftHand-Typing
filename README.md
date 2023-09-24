@@ -40,4 +40,4 @@ Start your journey now to boost your left-hand typing abilities and enjoy a fant
 
 ![Screenshot 2](https://user-images.githubusercontent.com/125852184/270140441-ba72093a-9527-4267-ae2e-9ed66595eabb.png)
 
-![Screenshot 3](https://user-images.githubusercontent.com/125852184/270140448-4bbd3332-2538-459c-ac27-c555369560fe.png)
+![Screenshot 3](https://user-images.githubusercontent.com/125852184/270140448-4bbd3322-2538-459c-ac27-c555369560fe.png)
